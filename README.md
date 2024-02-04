@@ -1,1 +1,1 @@
-readme
+Welcome to my test site. I'll be providing information on a variety of [SEO solutions](https://marshweb.co.nz/) tailored for agencies, as well as sharing insights on [arcade gaming](https://blueburst.gg/) for enthusiasts.
